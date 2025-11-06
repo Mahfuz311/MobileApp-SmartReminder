@@ -55,3 +55,9 @@ Link Clickup:https://app.clickup.com/90181799239/v/s/90187917652
 ---
 
 ## UX 
+
+Klik Di Bawah ini👇
+
+[![Watch the video](https://img.youtube.com/vi/LIjgWWz5XXE/0.jpg)](https://www.youtube.com/watch?v=LIjgWWz5XXE)
+
+---
